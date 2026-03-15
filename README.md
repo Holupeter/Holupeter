@@ -79,9 +79,8 @@ I am currently open to opportunities in:
 
 ## 📫 Connect With Me
 
-LinkedIn: [https://linkedin.com/in/your-link](https://www.linkedin.com/in/peter-ajayi/)  
-Email: your-email@example.com
-
+[LinkedIn](https://www.linkedin.com/in/peter-ajayi/)  
+[Email](peteradewaleajayi@gmail.com)
 ---
 
 
